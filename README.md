@@ -1,0 +1,1 @@
+created a long time ago, they're scripts for OSRS
